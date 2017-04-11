@@ -15,3 +15,7 @@ General Goal: I'd like to enter a career in web dev that I find both rewarding a
 1) I used to share a room with my friend in LA where I slept on the floor.
 2) I'm no longer a woman.
 3) According to self-diagnosis via WebMD, I've had scurvy (like pirates).
+
+
+## LinkedIn
+[](https://www.linkedin.com/in/alexi-ohearn/)
